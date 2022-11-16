@@ -10,6 +10,9 @@ Sed flavum. Stridore nato, Alcandrumque desint ostendit derat, longoque, eadem
 iunxit miserum pedum pectora. Liberat sine pignus cupit, ferit mihi venias
 amores, et quod, maduere haec _gravi_ contentusque heros. Qui suae attonitas.
 
+A pony is fun for kids to ride.
+Seven plus six equals thirteen.
+
 _Acta caelo_ ego, hoc illi ferroque, qui fluitque Achillis deiecerat erat
 inhospita arasque ad sume et aquis summo. Fugerat ipse iam. Funeris Iuno Danaos
 est inroravere aurum foret nati aeque tetigisset! Esse ad tibi queritur [Sol sub
